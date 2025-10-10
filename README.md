@@ -1,2 +1,2 @@
-# aulas-curso-em-video-gus-guanabara
-
+# Aulas Curso Em Vídeo Gustavo Guanabara
+[Por favor, utilize o direcionador para acessar as outras páginas, ela será constantemente atualizada a cada momento em que eu quiser.](https://blackghoust9.github.io/aulas-curso-em-video-gus-guanabara/direcionador%20-%20Copia.html)
